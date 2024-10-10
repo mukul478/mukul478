@@ -2,7 +2,7 @@
 -  I’m interested in web development.
 -  I’m currently learning machine learning.
 -  I’m looking to collaborate on communication skill.
--  How to reach me in mukulsharm58@gmail.com .
+-  reach me in mukulsharm58@gmail.com .
 -  Pronouns: listen to authentic speech.
 -  Fun fact: i don't have a good listning skill.
 
